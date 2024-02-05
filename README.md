@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SHASHANKOO3
-- 👀 I’m interested in analysing data
+- 👀 I’m interested in data analysing, cleaning and creating interactive visualisation
 - 🌱 I’m currently exploring various Data Analysis tools
 - 💞️ I’m looking for data Analyst job
 - 📫 How to reach me : https://www.linkedin.com/in/shashank-verma-108504154/
