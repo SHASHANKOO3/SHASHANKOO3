@@ -4,7 +4,7 @@
 - 💞️ I’m looking for data Analyst job
 - 📫 How to reach me : https://www.linkedin.com/in/shashank-verma-108504154/
 - 😄 Pronouns: He
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: You can't beat me in movie and TV Series quiz 
 
 <!---
 SHASHANKOO3/SHASHANKOO3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
